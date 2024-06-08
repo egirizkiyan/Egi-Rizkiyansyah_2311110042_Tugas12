@@ -1,0 +1,1 @@
+# Egi-Rizkiyansyah_2311110042_Tugas12
